@@ -18,3 +18,5 @@ have a 5-year survival rate of 50-90%. People in their late stages of this type 
 
 of 6-8 months without treatment, but 11-13 months with treatment.
 ![IMG_0042](https://github.com/user-attachments/assets/249d0e79-c031-4238-a1ad-577efe12ae29)
+
+https://www.gastroclinix.com/blog/liver/liver-cancer/liver-cancer/
