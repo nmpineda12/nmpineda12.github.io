@@ -17,3 +17,4 @@ chemotherapy, and palliative care. For someone with early stages of cancer
 have a 5-year survival rate of 50-90%. People in their late stages of this type of liver cancer have a life expectany
 
 of 6-8 months without treatment, but 11-13 months with treatment.
+![IMG_0042](https://github.com/user-attachments/assets/249d0e79-c031-4238-a1ad-577efe12ae29)
